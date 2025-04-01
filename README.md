@@ -1,7 +1,7 @@
 # I030
 Source text and supporting material for the Imom Series.
 
-## Imom--20300401--Released: 202504001--Delta: 5 years
+## Imom--20300401--Released: 202504001--Delta: 5 years from now.
 
 For the record, I'm one of April's fools.  When I first conceived of this platform, I opted for a near-future Sci-Fi.
 
