@@ -47,7 +47,22 @@ Claude 3.7 said this:
 
 -The quote "A time is coming when men will go mad, and when they see someone who is not mad, they will attack him, saying, 'You are mad; you are not like us'" is attributed to St. Anthony the Great (also known as St. Antony), who lived approximately from 251-356 CE. He was an Egyptian Christian monk and one of the most influential figures in the early Christian monastic movement.  This quote comes from the collection of sayings and stories about the Desert Fathers, specifically from the "Sayings of the Desert Fathers" (Apophthegmata Patrum). St. Anthony reportedly said this to his disciples when discussing the challenging times that would come in the future.
 
+The grown-up reference:  https://academic.oup.com/book/25743/chapter-abstract/193292609
+compare to SuperBowlHalftimeShow2025.
 
+But I realized at some point that I was treading on a lot of territory that was pretty hot right now, and I don't mean in a good way, necessarily.  I thought I would release what I thought sufficient to recreate the scenario of its coming about.  I will have to put the rest into a less public space, invite-only.  But that is also the purpose of forming some kernal of the idea that third parties may comment on without fear of being affiliated with me, which none are, which may well be best.
+
+Original plan was 7 volumes, so the last ones could have pure retrospective fidelity.
+
+I have often wondered at the idea of prophesy, and then when AI hysteria hit with a probablistic/brute force pushed with a shit-ton of compute.
+
+And none of it is that difficult at some level.  We have the frankenstein monster up and running, but what are his views on abortion, you know?
+
+Human reproduction at all.  cryptoeugenics is maximum ick.  Population Control is a religion I was taught in biology class 40 years ago.
+
+I've been 40 years in the desert.  My Lord humbled me with a life story that sounds made up by AI.  Implants.
+
+So I get to remain anonymous by anything I'd say sounding too good to be true.  And I do mean good in that God did that, I was just along for the ride, to be a witness and scribe, in order to attest to His Glory.
 
  ![p7](https://github.com/user-attachments/assets/8ca2b6c7-2a4e-487e-b28b-5e2234525690)
 
