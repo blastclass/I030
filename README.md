@@ -1,5 +1,6 @@
 # I030
 Source text and supporting material for the Imom Series.
+![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
 
 ## Imom--20300401--Released: 202504001--Delta: 5 years from now.
 
@@ -56,7 +57,7 @@ Claude 3.7 said this:
 
 
 
-![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
+
 
 
 
