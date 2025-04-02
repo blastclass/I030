@@ -33,7 +33,7 @@ Where I see a big storm brewing philosophically/theologically/legally/politicall
 The inspiration for the character of the Imom was this image/hymn/language/performance.  Komitas.  Short bio --> https://www.komitas.am/eng/brief.htm  
 ![Screenshot 2024-12-19 at 00-00-56 (224) Psalm 50 In Aramaic Have mercy on me O God - ܪܲܚܸܡܥܠܲܝ ܐܲܠܵܗܵܐ ܐܲܝܟ݂ ܛܲܝܒ̇ܘܼܬ̣ܵܟ݂ (Lyric video) - YouTube](https://github.com/user-attachments/assets/ff4da53a-25f9-4b9e-a856-e5b4ae71b0ee)
 
-Imom playlist (none are affiliated with me or this project.  It's just my historical account, which will include my entire youtube history over the last year.)
+Imom playlist https://www.youtube.com/playlist?list=PLGtZly7qufAosYnXN1m9mJCGzDpDFjC2x (none are affiliated with me or this project.  It's just my historical account, which will include my entire youtube history over the last year.)
 
 Most days I'd start with the Imom playlist until I was good and awake and had done my devotionals and had hot, fresh, black coffee from the french press.
 
