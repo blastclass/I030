@@ -40,8 +40,48 @@ I'd fast until dark, except for the coffee, and I'd feast.  I'm ectomorph, so th
 
 However, I went as slowly as I possibly could, and did my best not to commit a single blasphemy against my Lord, but know I have not been perfect, and much will be mistaken for that, anyway, depending on your tradition.
 
-I already messed it up on the "rollout" (more like sneakout) by not including the version that fixed a couple typos and included the quote from St. Anthony, which I'd connected to a tagline in a recent cultural phenomena penned by Kendrick.![the-imom-2030](https://github.com/user-attachments/assets/8b3078ff-46d0-43b3-98c3-1804f956c373)<?xml version="1.0" encoding="UTF-8" standalone="no"?>
-<!-- Created with Inkscape (http://www.inkscape.org/) -->
+I already messed it up on the "rollout" (more like sneakout) by not including the version that fixed a couple typos and included the quote from St. Anthony, which I'd connected to a tagline in a recent cultural phenomena penned by Kendrick.![the-imom-2030](https://github.com/user-attachments/assets/8b3078ff-46d0-43b3-98c3-1804f956c373)
+
+Claude 3.7 said this:  
+
+-The quote "A time is coming when men will go mad, and when they see someone who is not mad, they will attack him, saying, 'You are mad; you are not like us'" is attributed to St. Anthony the Great (also known as St. Antony), who lived approximately from 251-356 CE. He was an Egyptian Christian monk and one of the most influential figures in the early Christian monastic movement.  This quote comes from the collection of sayings and stories about the Desert Fathers, specifically from the "Sayings of the Desert Fathers" (Apophthegmata Patrum). St. Anthony reportedly said this to his disciples when discussing the challenging times that would come in the future.
+
+
+
+ ![p7](https://github.com/user-attachments/assets/8ca2b6c7-2a4e-487e-b28b-5e2234525690)
+
+ 
+
+
+
+
+
+![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
+
+
+
+
+
+
+
+![image](https://github.com/user-attachments/assets/7cd73cab-0766-4a34-8c32-c02d1464158d)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<?xml version="1.0" encoding="UTF-8" standalone="no"?>
 
 <svg
    width="210mm"
@@ -58,26 +98,6 @@ I already messed it up on the "rollout" (more like sneakout) by not including th
    xmlns:sodipodi="http://sodipodi.sourceforge.net/DTD/sodipodi-0.dtd"
    xmlns="http://www.w3.org/2000/svg"
    xmlns:svg="http://www.w3.org/2000/svg">
-  <sodipodi:namedview
-     id="namedview7"
-     pagecolor="#000000"
-     bordercolor="#000000"
-     borderopacity="0.25"
-     inkscape:showpageshadow="2"
-     inkscape:pageopacity="0.70588235"
-     inkscape:pagecheckerboard="0"
-     inkscape:deskcolor="#d1d1d1"
-     inkscape:document-units="mm"
-     showgrid="false"
-     inkscape:zoom="0.914906"
-     inkscape:cx="201.11356"
-     inkscape:cy="560.71334"
-     inkscape:window-width="956"
-     inkscape:window-height="1021"
-     inkscape:window-x="6720"
-     inkscape:window-y="2886"
-     inkscape:window-maximized="0"
-     inkscape:current-layer="layer1" />
   <defs
      id="defs2" />
   <g
@@ -143,12 +163,3 @@ I already messed it up on the "rollout" (more like sneakout) by not including th
 
 
 
- ![p7](https://github.com/user-attachments/assets/8ca2b6c7-2a4e-487e-b28b-5e2234525690)
-
- 
-
-
-
-
-
-![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
