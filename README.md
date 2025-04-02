@@ -28,3 +28,5 @@ For one's personal worldview, it is no doubt to reflect tastes and tendencies an
 Where I see a big storm brewing philosophically/theologically/legally/politically/economically/etc.  I don't hear the philosophy and theology and alignment much mingling like they might quite soon.
 
 --2025-0401-18:38-CST
+![Screenshot 2024-12-19 at 00-00-56 (224) Psalm 50 In Aramaic Have mercy on me O God - ܪܲܚܸܡܥܠܲܝ ܐܲܠܵܗܵܐ ܐܲܝܟ݂ ܛܲܝܒ̇ܘܼܬ̣ܵܟ݂ (Lyric video) - YouTube](https://github.com/user-attachments/assets/ff4da53a-25f9-4b9e-a856-e5b4ae71b0ee)
+![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
