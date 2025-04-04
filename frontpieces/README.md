@@ -57,38 +57,67 @@ Galatians 5:
 I haven't really talked about Galatians and how I think we may get things a little less right than maybe we should.
 
 > You foolish Galatians! Who put you under a spell?
+> 
 > Was not Jesus the Messiah clearly portrayed before your very eyes as having been crucified? 
+>
 > This only I want to learn from you: Did you receive the Spirit by the works of the law,
+>
 > or by the hearing of faith? 
+>
 > Are you so foolish?
+>
 > Having begun in the Spirit, are you now being made perfect by the flesh?
+>
 > Have you suffered great things in vain—if indeed it was in vain?
+>
 > For through the Law I died to the Law so that I might live for God.
+>
 > I have been crucified with the Messiah.
+>
 > I no longer live, but the Messiah lives in me,
+>
 > and the life that I am now living in this body I live by the faithfulness of the Son of God,
+>
 > who loved me and gave Himself for me.
+>
 > I do not reject God's grace,
+>
 > for if righteousness comes about by doing what the Law requires,
+>
 > then the Messiah died for nothing.
+>
 > I am astonished that so quickly you desert Who called you in the grace of Christ to a different gospel.
+>
 > Which it is not.
+>
 > Or you are troubled by those who desire to pervert the Gospel of Christ.
+>
 > But if we, or even an angel out of heaven should preach a Gospel to you contrary to what we proclaimed to you:
+>
 > Accursed, let him be.  Anathema.
+>
 > Whereas we have said before, and even now again I say:
+>
 > If anyone is preaching a gospel to you contrary to what you received,
+>
 > Accursed, let him be.  Anathema.
+>
 > Am I now seeking the approval of men?  Or of God.
+>
 > Do I wish men be pleased?
+>
 > For if to please man, I would not be a bondservant of Christ.
 
 . . .Paul mentions Arabia. . .
 
 > But when it pleased God, who separated me from my mother's womb and called me through His grace,
+>
 > To reveal His Son in me, that I might preach Him among the Gentiles.
+>
 > I did not immediately confer with flesh and blood,
+>
 > nor did I go up to Jerusalem to those apostles before me;
+>
 > But I went to Arabia. . .
 
 And that was the bit that got me.  
