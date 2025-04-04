@@ -118,4 +118,14 @@ Paul was gone three years, at least first to Arabia from Damascus, but returning
 
 Cultural and Historical Background: Arabia in biblical times was a vast and diverse region, home to various tribes and cultures. It was known for its trade routes, including the famous incense and spice routes. The region played a significant role in the ancient world due to its strategic location and resources. The Nabateans, a prominent Arab kingdom, controlled much of the trade in the area during the time of the New Testament.
 
-There's Christian sites for the study of Jewish texts, but there is no Islamic site dedicated to studying any of the previous scriptures, even though the 
+There's Christian sites for the study of Jewish texts, but there is no Islamic site dedicated to studying any of the previous scriptures, even though the Quran is supposedly full of exhortations to believe the previous scriptures and test the Quran against the stories in it.
+
+But the stories don't match.  The names don't match.  Beyond transliteration issues.  Like the characters were definitely supposed to refer to Biblical personalities, but were off enough to lead me to believe that they were indeed removed a further distance from their Biblical analogues for a good reason.  And that is that the Quran was a recitation.  A performance.  A way to comment on the crazy stories going around, and retelling some of the favorites to illustrate the reasons that these stories are not part of the canon of scripture.
+
+We are told over and over that the previous scriptures were sent by God, and that no one could change the words.
+
+Problem is, anyone NOT familiar with the previous scriptures has no context with which to understand the Quran.
+
+It's unfortunate, because the Quran is a completely different animal for those who have a good knowledge of the Bible.
+
+But we're faked out by it in a different way than Muslims.
