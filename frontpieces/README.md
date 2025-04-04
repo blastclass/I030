@@ -1,22 +1,31 @@
+![DISCLAIMER](DISCLAIMER.md)
+
 I think at one point I had written more disclaimers and intros than I had actual content in a form anyone might start to understand.
 
 I was writing something that I knew that couldn't NOT be misunderstood.  I knew it would be like the first time I tried to read _Howl_.
 
 I simply didn't have the references:
 
-Howl
+From _Howl and Other Poems_(City Lights Books, 1956)
 By Allen Ginsberg
 
 For Carl Solomon
 I
 
 I saw the best minds of my generation destroyed by madness, starving hysterical naked,
+
 dragging themselves through the negro streets at dawn looking for an angry fix,
+
 angelheaded hipsters burning for the ancient heavenly connection to the starry dynamo in the machinery of night,
+
 who poverty and tatters and hollow-eyed and high sat up smoking in the supernatural darkness of cold-water flats floating across the tops of cities contemplating jazz,
+
 who bared their brains to Heaven under the El and saw Mohammedan angels staggering on tenement roofs illuminated,
+
 who passed through universities with radiant cool eyes hallucinating Arkansas and Blake-light tragedy among the scholars of war,
+
 who were expelled from the academies for crazy & publishing obscene odes on the windows of the skull,
+
 who cowered in unshaven rooms in underwear, burning their money in wastebaskets and listening to the Terror through the wall,
 
 etc.
