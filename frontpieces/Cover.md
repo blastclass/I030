@@ -30,11 +30,11 @@ Because this is me:
 
 You wouldn't be the first to take it all wrong:
 
-![$$T_cap_20![$$T_cap_2024-M12-2](https://github.com/user-attachments/assets/7a31ba8f-dcc9-4783-b18a-5a4829a53f23)
+![$$T_cap_2024-M12-2](https://github.com/user-attachments/assets/7a31ba8f-dcc9-4783-b18a-5a4829a53f23)
 
 Or think that LLM's might answer some of the stickier questions:
 
-24-M27-1](https://github.com/user-attachments/assets/78e29c98-aa25-4b60-8f9e-34d3a497763d)
+![$$T_cap_2024-M27-1](https://github.com/user-attachments/assets/78e29c98-aa25-4b60-8f9e-34d3a497763d)
 
 
 
