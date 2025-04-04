@@ -91,6 +91,8 @@ Paul was gone three years, at least first to Arabia from Damascus, but returning
 
 > Cultural and Historical Background: Arabia in biblical times was a vast and diverse region, home to various tribes and cultures. It was known for its trade routes, including the famous incense and spice routes. The region played a significant role in the ancient world due to its strategic location and resources. The Nabateans, a prominent Arab kingdom, controlled much of the trade in the area during the time of the New Testament.
 
+![mosai048-large](https://github.com/user-attachments/assets/6e2c4c46-4810-4cf6-8cf0-8c182316f6f2)
+
 There's Christian sites for the study of Jewish texts, but there is no Islamic site dedicated to studying any of the previous scriptures, even though the Quran is supposedly full of exhortations to believe the previous scriptures and test the Quran against the stories in it as they've always been told.
 
 But the stories don't match.  The names don't match.  It's beyond transliteration issues, IMO.  Like the characters were definitely supposed to refer to Biblical personalities, but were off enough to lead me to believe that they were indeed removed a further distance from their Biblical analogues for a good reason.  And that is that the Quran was a recitation.  A performance.  A way to comment on the crazy stories going around, and retelling some of the favorites to illustrate the reasons that these stories are not part of the canon of scripture.
@@ -128,3 +130,27 @@ Problem is, anyone NOT familiar with the previous scriptures has no context with
 It's unfortunate, because the Quran is a completely different animal for those who have a good knowledge of the Bible.
 
 But we're faked out by it in a different way than Muslims.
+
+Prots have done the same with the Church Fathers as Islam did with the previous scriptures.  And that Judaism did with the Tanakh.
+
+But the world always has, and always will, revolve around the person of Jesus Christ of Nazareth.
+
+I picked the most obvious choice for a default worldview, because I trust it to be provably the best framework through which to evaluate the rest.  You can deny history of you like, but to brush it off like an atheist asked to provide his basis for using logic to determine anything.
+
+It's just part of the simulation, you see.
+
+Billions of meditation-years of hundreds of millions of sactified minds.
+
+Bring your models, and see how they size up.
+
+Pikers.  Running on the sick thrill of mocking God.  Repent.
+
+![Staff_at_Sunset](https://github.com/user-attachments/assets/c3dc0c4c-5443-4820-8fb8-11a7118d4b85)
+
+Dario Amodei:
+
+![Screenshot 2024-11-11 at 18-03-32 Dario Amodei — Machines of Loving Grace](https://github.com/user-attachments/assets/6c7743c0-64a4-44b6-bbfb-9ef3fda59ba6)
+
+Liturgy of St. James:
+
+![Screenshot 2024-12-03 at 11-30-34 ](https://github.com/user-attachments/assets/edc91e52-db4e-4dc4-87fd-ec495b8746dc)
