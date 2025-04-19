@@ -215,4 +215,54 @@ Here's what was available at the time of Muhammad according to Grok 3:
 
 >>These would likely be codices or fragments in churches or private hands, reflecting Petra’s Christian heritage and regional connections. For deeper research, explore Syriac manuscript catalogs (e.g., British Library) or archaeological reports on Petra’s Byzantine churches.
 
+That's your al-Ketab right there.  These should be in the footnotes of any Quran worth its ink so the previous scriptures can be referenced.
+
+For study purposes, it should also be in largely chronological order.  It should also be up front as to the external references.  The Bible should do the same.  There are attempts in that realm where all the pagan mythology is being presented alongside the scriptures.  We now have the greatest study software of all time, and all that only gets better.  So if Islam wants to die off as a social cult, it can stay with the whole "scriptures are corrupted" line that no one believes that has any ability to assess the evidence.
+
+The powers that be inside Islam are not interested in unlocking this gate, because it leads to Christ.  Every trail I went down with the stories in the Quran led to Christ.  History revolves around Christ.  Pay me now or pay me later.  Everyone does their best to try and minimize Christ, but they all are forced to address the primacy of the person of Christ.  The Jews are forced to deny His Messiahship, and Muslims try to pay lip service, but even their own scriptures betray an extreme fascination with Christ.
+
+In the Quran it pops out in interesting ways.  Because the Christian tradition has such a rich heritage in symbolism, typology, parables, and highest level poetic structures, as well as extremely specific theological formulas, a critical Christian reader, if not encumbered by a retrojection of post-Muhammad conjecture from Islamic scholars, can discover the Quran as compellingly Christian in its plain reading.
+
+And my Muhammad is one of the the founders of the Nabati, fully Najdi, a life full of desert treks and chats with Hanifs and desert Fathers, traditions that ultimately brought the Arabic poetic traditions into modern times.  Surrounded by a milieu of traditions, heresies and hucksters, a 
+
+>In pre-Islamic society, poetry held an extremely important position, with poets (sha'ir) fulfilling the roles of "historian, soothsayer and propagandist." Poetic competitions were so significant that "mock battles in poetry or zajal would stand in lieu of real wars" between tribes, representing tribal prestige and importance. Wikipedia
+
+Let's declare the world we're speaking about, as if its importance has been destroyed by geopolitics, iconoclasm, floods and quakes and wars and kings from time immemorial.  We can't really know where many of the most ancient of locations really were and what they were called at the time.  At some level, a Holy Mountain is a Holy Mountain.  and a Wilderness is a Wilderness and a River is a River.  That's not even close to true, however, we don't really know with great certainty many of the locations referenced in the Bible, especially those not directly inside the Kingdom of David, but nearby "to the East" or whatever.  But there are some we surely do.
+
+I take as my model, Jesus Christ the Fulfillment, who exegeted the Perfect Law of Liberty, a cornerstone of a Faith built on Love.  Galatians was my entry point, because I was looking for "Arab" and "Arabia" for Biblical tie-ins to a history of the Arab people that Muhammad considered himself to be a part of, through Abraham and Ishmael.  So I was led to Paul going to Arabia, a freshly minted Apostle, and the Raven, which is 'Oreb' in Hebrew, from which it is surmised that 'Arab' may have come.
+
+I looked for birds in the Quran and found they had been abrogated, the high-flying cranes, and instead became part of Islam's devaluation of women, when Christ and Paul and the Early Church and even the poetic tradition that Muhammad was born into.
+
+*Women's Poetry
+>>Women also played an important role in pre-Islamic poetry. There exist collections "of poetry by Arab women from the Jahiliyya (pre-Islamic era) to the Andalusian period" which "celebrate the triumph of feminine wit over the arrogance of muscle power, in a period when women were suppressed by religious and political bigotry." Cornell
+
+>These historical poetry competitions, especially at venues like Souk Okaz, provide fascinating context for understanding the cultural environment Muhammad emerged from. The centrality of poetry to Arab tribal identity, the competitive performance aspects, and the role of the poet as a cultural authority figure all help explain why the Quran's poetic qualities were so impactful in that society. (Claude 3.7 Sonnet)
+
+Places have also always taken on the names of a people under a patriarch, or were named, like Bethel for what it was.  We should absolutely go full syncretic, and cross every possible transliteration amongst the tongues of the time, tracing roots to find the Truth that abides whether we are talking about this valley here, or the next one over.  Modern exegetes that readily accept new information is what we are here, trusting ourselves to weed out the mundane and uncharitable takes that seek to isolate fields of study, socio-political groups, races and geographies.  God's Kingdom doesn't ultimately have borders, although still is to have kingdoms ruled by kings.
+
+It was very difficult for me to find voices that spoke with requisite authority TO ME.  As such, I was often lost in the weeds, in the wilderness, horrified by how my faith was manifesting in the world.  How far it seemed to have drifted in an attempt to conform to the world.  Doesn't that seem crazy?  That we installed disco balls and subwoofers in our places of worship?  The effects are tremendous, I'll grant, and only the best for my Lord, but to what end?  It is in my very nature to be reading and writing or listening to intelligent people discuss all these things.  I've nearly crowded out every other activity.
+
+I keep pushing how I can push, and honing my vision, because it could never be complete.  I opened a tiny portal into an attainable near-future, but hopped up on an extremely narrow worldview that also happens to be completely sufficient to guarantee human flourishing if well implemented.
+
+And that is part of the puzzle I've been interested in.  If there were the case where the conversion rate goes vertical, which can happen at any moment in this day and age, what would be the best mechanism to bring believers into the Faith?  The Imom thinks that would be Water Baptism, but that is the culmination of a process.  We should simply call it Orientation, because most know that drill.  Perhaps that's where newbies find their gifts.  I like the Hogwarts analogy quite well.  Seems like Starfleet Academy, and there was a Jedi council, etc.  All borrow and conterfiet the original, which is inevitable, but must be done in good faith, or it becomes blasphemy and heresy.  From a Jewish perspective, for instance, queering a Christian theme is likely necessary if not simply habitual.  I get it. I think making Muhammad out to be a prophet is crazy, too.  But I decided to GO WITH IT.
+
+Decided to open all the doors I could possibly open.  I felt confident I could believe that Muhammad was a prophet, but I had not yet heard the prophesy he was supposed to have brought.  When it is presented to me, it is out of order and seems to be a commentary on popular stories and literature of the time, but had been dressed up after-the-fact as being this super-serious religion that has come to correct all the others.  Which it doesn't do well at all, to be honest.  It's treated like it's unironically the Cliff's Notes on the entirety of history.
+
+But I asked the Spirit to allow me to accept Islam as the explanation for why it was the way that it was, and the Quran as prophesy it seemed no one had yet decoded.  Like how the Devil thought he'd won, right up until the point that Jesus declared it finished and died.  This epic "fooled everyone, even though I explained everything that was happening and would happen."
+
+At this point, I consider the SIN (Standard Islamic Narrative) to be like the Pharisees and Sadducees and the Essenes and the Samaritans, etc.  Jesus came and then sent the Holy Spirit to teach his followers to understand the Scriptures, to learn to orient themselves with the Law, to find where Jesus had always been with humanity, and always will be, and that the Old Testament was a book about Him and His People.
+
+So what is the Quran, then?  I wish I could just write it off as being typical apocrypha, but there are 2 billion souls on this planet who think it's the last words of the last prophet and all the things the SIN believes.  How many times have we heard this story?  To me, this sounds like Judges 6:
+
+>Midian Oppresses Israel
+
+>1Again the Israelites did evil in the sight of the LORD; so He delivered them into the hand of Midian for seven years, 2and the hand of Midian prevailed against Israel. Because of the Midianites, the Israelites prepared shelters for themselves in the mountains, caves, and strongholds.
+
+>3Whenever the Israelites would plant their crops, the Midianites, Amalekites, and other people of the east would come up and invade them, 4encamping against them as far as Gaza and destroying the produce of the land. They left Israel with no sustenance, neither sheep nor oxen nor donkeys. 5For the Midianites came with their livestock and their tents like a great swarm of locusts. They and their camels were innumerable, and they entered the land to ravage it.
+
+>6Israel was greatly impoverished by Midian, and the Israelites cried out to the LORD.
+
+>7Now when the Israelites cried out to the LORD because of Midian, 8He sent them a prophet, who told them, “This is what the LORD, the God of Israel, says: I brought you up out of Egypt, out of the house of slavery. 9I delivered you out of the hands of Egypt and all your oppressors. I drove them out before you and gave you their land. 10And I said to you: ‘I am the LORD your God. You must not worship the gods of the Amorites, in whose land you dwell.’ But you did not obey Me.”
+
+
 
