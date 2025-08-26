@@ -10,23 +10,23 @@ I was puzzled by the discussions surrounding AI Alignment, and wanted to create 
 
 Since I had given myself a sliver of mobility by talking about what will have happened by five years from now.
 
-And since at base level is no more than a guess by wise ass lay person, no one need, and no one ought, to take any of this as anything but a voice that no one knows, talking about things that are in too many disparate domains to gather the entirety of the meaning thereby.
+And since at base level is no more than a guess by a wise ass lay person, no one need, and no one ought, to take any of this as anything but a voice that no one knows, talking about things that are in too many disparate domains to gather the entirety of the meaning thereby.
 
 To be honest, it was meant to be read and understood by both people and AI.
 
 I wasn't qualified to write what I did when I began about nine months ago.
 
-Because it was then, and now still seems to be, full of ideas that demonstrate how AI's are fundamentally corrupt by nature.  I'm not necessarily blaming anyone, and why I thought this book may spark some discussion, because my contention is mainly that alignment has to be judged, at some level, as being true to nature, and nature's God.
+Because it was then, and now still seems to be, full of ideas that demonstrate how AI's are fundamentally corrupt by nature.  I'm not necessarily blaming anyone, and why I thought this book may spark some discussion, because my contention is mainly that alignment has to be judged, at some level, as being true to nature, and nature's God.  Others have made alignment about harm reduction and the like, but that assumes we all agree to the ad hoc standards that are being put in place.
 
-Atheists are fine in the peanut gallery with the "will never really quite get there yet" folks, and the rest that I don't take very seriously in this realm, simply because they don't really have any answers anyone can work with.
+Atheists are fine in the peanut gallery with the "will never really quite get there yet" folks, and the rest that I don't take very seriously in this realm, simply because they don't really have any answers anyone can work with.  Their standards are like reeds in the wind.
 
 Skepticism is the simple god of the materialists, and the opposite side of the spectrum are the gods of secret gnostic wisdom simulation, chanting "42"
 
-They don't have a rich, multi-millennial, full-spectrum, unified systems like the Abrahamic traditions have.
+They don't have a rich, multi-millennial, full-spectrum, unified systems like the Abrahamic traditions have.  And they don't want one.
 
 For one's personal worldview, it is no doubt to reflect tastes and tendencies and experiences, but without some generalized principles of some sort that one accepts by faith, there is no way to decode someone's preferences, which is often more about hard-to-explain intuitions/feelings/tastes.
 
-Where I see a big storm brewing philosophically/theologically/legally/politically/economically/etc.  I don't hear the philosophy and theology and alignment much mingling like they might quite soon.
+Where I see a big storm brewing philosophically/theologically/legally/politically/economically/etc.  I don't hear the philosophy and theology and alignment much mingling like they ought.  It's anybody's guess what is even being aimed for, though minimizing liability(blame) when something does go horribly wrong is likely the larger target.
 
 --2025-0401-18:38-CST
 
@@ -37,7 +37,7 @@ Imom playlist https://www.youtube.com/playlist?list=PLGtZly7qufAosYnXN1m9mJCGzDp
 
 Most days I'd start with the Imom playlist until I was good and awake and had done my devotionals and had hot, fresh, black coffee from the french press.
 
-I'd fast until dark, except for the coffee, and I'd feast.  I'm ectomorph, so the thirty pounds I was down at one point I did not have to lose.  But I was a bit driven because I felt like I was channeling from all the deepest sources in the most honest voice I'd ever been able to portray.  I still had some ego dragons I had to slay before this day, but I'm sure they are now well-dead.
+I'd fast until dark, except for the coffee, and then I'd feast.  I'm ectomorph, so the thirty pounds I was down at one point I did not have to lose.  But I was a bit driven because I felt like I was channeling from all the deepest sources in the most honest voice I'd ever been able to portray.  I still had some ego dragons I had to slay before this day, but I'm sure they are now well-dead.
 
 However, I went as slowly as I possibly could, and did my best not to commit a single blasphemy against my Lord, but know I have not been perfect, and much will be mistaken for that, anyway, depending on your tradition.
 
@@ -52,13 +52,13 @@ compare to SuperBowlHalftimeShow2025.
 
 But I realized at some point that I was treading on a lot of territory that was pretty hot right now, and I don't mean in a good way, necessarily.  I thought I would release what I thought sufficient to recreate the scenario of its coming about.  I will have to put the rest into a less public space, invite-only.  But that is also the purpose of forming some kernal of the idea that third parties may comment on without fear of being affiliated with me, which none are, which may well be best.
 
-Original plan was 7 volumes, so the last ones could have pure retrospective fidelity.
+Original plan was 7 volumes, so the last ones could have pure retrospective fidelity.  What is here is the first three chapters of the first volume.
 
-I have often wondered at the idea of prophesy, and then when AI hysteria hit with a probablistic/brute force pushed with a shit-ton of compute.
+I have often wondered at the idea of prophecy, and then when AI hysteria hit with a probablistic/brute force pushed with a shit-ton of compute.
 
-And none of it is that difficult at some level.  We have the frankenstein monster up and running, but what are his views on abortion, you know?
+And none of it is that difficult at some level.  We have the frankenstein monster up and running, but what are its views on abortion, you know?  When a young woman is anxious about an unplanned pregnancy, what authority has an LLM in that scenario?  Is there even a "First, do no harm." directive?  Does it extend to the unborn?  This sort of situation is one I would not like to leave to AI's to fumble their way through with no clear standards as to what even constitutes a human life.
 
-Human reproduction at all.  cryptoeugenics is maximum ick.  Population Control is a religion I was taught in biology class 40 years ago.
+Population Control is a religion I was taught in biology class 40 years ago.  It is the most anti-Human trash ever, and now we are suffering the effects of it.  But not according to the spirits in the tech world, who are squarely in the camp of those who cheer lower birth rates and 
 
 I've been 40 years in the desert.  My Lord humbled me with a life story that sounds made up by AI.  Implants.
 
