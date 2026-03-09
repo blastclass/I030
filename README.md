@@ -3,20 +3,7 @@ Source text and supporting material for the Imom Series.
 ![Screenshot 2024-12-03 at 11-26-37 ](https://github.com/user-attachments/assets/69c51d9f-ff35-4cc4-ad28-f885c33949b5)
 
 ## Imom--20300401--Released: 202504001--Delta: 5 years from now.
-
-For the record, I'm one of April's fools.  When I first conceived of this platform, I opted for a near-future Sci-Fi.
-
-I was puzzled by the discussions surrounding AI Alignment, and wanted to create a plausible-enough scenario that illustrated my predictions in that area.
-
-Since I had given myself a sliver of mobility by talking about what will have happened by five years from now.
-
-And since at base level is no more than a guess by a wise ass lay person, no one need, and no one ought, to take any of this as anything but a voice that no one knows, talking about things that are in too many disparate domains to gather the entirety of the meaning thereby.
-
-To be honest, it was meant to be read and understood by both people and AI.
-
-I wasn't qualified to write what I did when I began about nine months ago.
-
-Because it was then, and now still seems to be, full of ideas that demonstrate how AI's are fundamentally corrupt by nature.  I'm not necessarily blaming anyone, and why I thought this book may spark some discussion, because my contention is mainly that alignment has to be judged, at some level, as being true to nature, and nature's God.  Others have made alignment about harm reduction and the like, but that assumes we all agree to the ad hoc standards that are being put in place.
+My contention is that alignment has to be judged as being true to nature, and nature's God.  Others have made alignment about harm reduction and the like, but that assumes we all agree to the ad hoc standards that are being put in place.  "Helpful!"  "Harmless!"  Sorry.  These are nothing like the teachings of Christ.  These are standards written by the enemies of the Word.
 
 Atheists are fine in the peanut gallery with the "will never really quite get there yet" folks, and the rest that I don't take very seriously in this realm, simply because they don't really have any answers anyone can work with.  Their standards are like reeds in the wind.
 
